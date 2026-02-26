@@ -22,6 +22,6 @@
 - - - -
 #### 关注社交媒体（请在翻墙网络下打开）
 
-**:bird: [Twitter](https://x.com/hifasttech?s=21)** 
+**:bird: [Twitter](https://hifastvpn.com/)** 
 
 ###
